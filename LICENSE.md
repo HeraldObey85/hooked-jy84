@@ -1,4 +1,4 @@
-#  
+#  hooked Script elite is the best hooked Script, featuring aimbot and anti-ban. Safe and powerful for all your needs.
 
 
 
